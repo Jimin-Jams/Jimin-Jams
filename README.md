@@ -1,4 +1,4 @@
- <h1>Hi, I'm "@Jimin-Jams"</h1>
+ c
 
 ![github 2](https://user-images.githubusercontent.com/91107583/134284090-6053d1e0-8ee4-4639-a0ff-a886e07c9037.jpg)
 
