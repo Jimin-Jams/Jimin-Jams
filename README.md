@@ -20,5 +20,6 @@ He Said that Jimin has got no jams | I am Jimin's lost jam .
 - 🌱 I’m currently working on a website of BTS
 - 💞️ I’m looking to collaborate on with @Prachi106-star ...
 - 📫 Just follow me on github ...
-
+- Lil weed loving herself 
+- https://www.youtube.com/channel/UCmT9P1kaMBDu4VvZfZFASXw follow my friend 😇
 
