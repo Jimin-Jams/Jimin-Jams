@@ -23,3 +23,8 @@ He Said that Jimin has got no jams | I am Jimin's lost jam .
 - Lil weed loving herself 
 - https://www.youtube.com/channel/UCmT9P1kaMBDu4VvZfZFASXw follow me 😇
 
+
+<h1>Happy New Year to all the people out there !</h1>
+<h2>All our loved ones have given us something .... for me my dear friend @Prachi106-star has given me the sweetest gift , she made my day ! happy new year once again !!</h2>
+
+![image](https://user-images.githubusercontent.com/91107583/147844513-4f94a773-32ea-4aa1-bec5-c4ebbf72e680.png)
