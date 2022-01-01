@@ -18,8 +18,8 @@ He Said that Jimin has got no jams | I am Jimin's lost jam .
 - 🤪 I am also losing my last braincells 
 - So if you don't want me to die , then send me to BTS as soon as possible 
 - 🌱 I’m currently working on a website of BTS
-- 💞️ I’m looking to collaborate on with @Prachi106-star ...
+- 💞️ I’m looking to collaborate on with @BTS
 - 📫 Just follow me on github ...
 - Lil weed loving herself 
-- https://www.youtube.com/channel/UCmT9P1kaMBDu4VvZfZFASXw follow my friend 😇
+- https://www.youtube.com/channel/UCmT9P1kaMBDu4VvZfZFASXw follow me 😇
 
