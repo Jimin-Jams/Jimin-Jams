@@ -25,7 +25,7 @@ He Said that Jimin has got no jams | I am Jimin's lost jam .
 
 <h1>Happy New Year to all the people out there !</h1>
 <h2>I am crying today , suga has recovered from covid-19 my prayers worked I love him s much ....</h2>
-![image](https://user-images.githubusercontent.com/91107583/148006551-80bf5278-2bb0-40d5-b01b-53ffa7a00b46.png)
+https://user-images.githubusercontent.com/91107583/148006551-80bf5278-2bb0-40d5-b01b-53ffa7a00b46.png
 
 
 <h2> I freaking don't know my emotions right now cause rm and jin oppa are suffering at the same time I have so many prayers for them <h2>
