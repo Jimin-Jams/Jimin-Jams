@@ -14,7 +14,6 @@ Namjoon's Brain | My brain
 He is very intelligent | I am a amajin and leJindary
 He Said that Jimin has got no jams | I am Jimin's lost jam .
 
-
 - 🤪 I am also losing my last braincells 
 - So if you don't want me to die , then send me to BTS as soon as possible 
 - 🌱 I’m currently working on a website of BTS
@@ -25,6 +24,10 @@ He Said that Jimin has got no jams | I am Jimin's lost jam .
 
 
 <h1>Happy New Year to all the people out there !</h1>
-<h2>All our loved ones have given us something .... for me my dear friend @Prachi106-star has given me the sweetest gift , she made my day ! happy new year once again !!</h2>
+<h2>I am crying today , suga has recovered from covid-19 my prayers worked I love him s much ....</h2>
+![image](https://user-images.githubusercontent.com/91107583/148006551-80bf5278-2bb0-40d5-b01b-53ffa7a00b46.png)
 
-![image](https://user-images.githubusercontent.com/91107583/147844513-4f94a773-32ea-4aa1-bec5-c4ebbf72e680.png)
+
+<h2> I freaking don't know my emotions right now cause rm and jin oppa are suffering at the same time I have so many prayers for them <h2>
+![image](https://user-images.githubusercontent.com/91107583/148006684-e0e223f2-698a-4a95-9ff0-aaef9790e950.png)
+
